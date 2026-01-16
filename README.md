@@ -44,7 +44,7 @@ Entregables y fechas:
 
 
 ¡Manos a la obra, equipos de investigación!  
-Recuerden: un buen trabajo de investigación **no solo encuentra respuestas, las entiende**😎.
+Recuerden: una buena investigación **no solo encuentra respuestas, las entiende**😎.
 
 
 
